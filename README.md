@@ -18,6 +18,6 @@
 
 ## Презентация
 
-[Жми на меня! :)](https://drive.google.com/open?id=1EH8Iq6G1DXoXuhPhoYGHZQF-Ar2nlJkd)
+[Жми на меня! :)](https://drive.google.com/file/d/18NJUWGsMkKhGVzUNW-rYQ7D4eJL8reHE/view?usp=sharing)
 
 ![спасибо!](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/8d8aa80d-a00f-4ca5-817d-30fbc6bf33be/da1dscf-07a911cf-22f3-4269-994b-0b1f8a7e8261.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzhkOGFhODBkLWEwMGYtNGNhNS04MTdkLTMwZmJjNmJmMzNiZVwvZGExZHNjZi0wN2E5MTFjZi0yMmYzLTQyNjktOTk0Yi0wYjFmOGE3ZTgyNjEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.R2BNDJoui-jLCBKPX-l50oI5jc4pZPSozrPLLwEmkU8)
